@@ -6,3 +6,6 @@
 #That's a theory yet I think they rather make(use inventive ways to build geologically) a structure and combine 2 rivers to 1 rather than pass the same river twice!!! which is impossible(see Heraclitus)-->Example Zeta Reticully is ok but then maybe we travel around moon and later we change our minds to visiting Cancer and Scorpio.
 #The idea is our histories are a combination not a "history repeats once as a funny thing going and 2nd time as tragedy"...zig zag means zig zag systems drift! 
 <img width="1104" height="10376" alt="zigzag" src="https://github.com/user-attachments/assets/e88a400e-1924-4ae5-b9a0-ebbc3f3a21ea" />
+
+P.S.:The situation description can be summarized like this: the situation is similar to talking to a drunk person that repeats the same story many times rather than a visible picture..coming from memory...like Rick from Rick and Morty-->their spaceship many times is in trouble(Rick is always drunk)<img width="197" height="185" alt="rick" src="https://github.com/user-attachments/assets/1108a11c-b362-41d3-92df-ef8721829810" />
+)
